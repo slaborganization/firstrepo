@@ -1,2 +1,0 @@
-# firstrepo
-Attività operative
